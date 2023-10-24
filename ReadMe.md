@@ -1,4 +1,4 @@
-# 💫 Sobre mim:
+#  Sobre mim:
 
 👨‍🎓 Desenvolvedor em construção...
 
